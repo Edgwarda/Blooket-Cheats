@@ -1,2 +1,2 @@
 # Blooket-Cheats
-Blooket Cheat Menu (Not My Build)
+Blooket Cheat Menu (This will not always be updated.)
